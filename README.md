@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vishalsingh2407
 - 👀 I’m interested in web development 
-- 🌱 I’m currently learning Diploma in computer science & Engineering 
+- 🌱 I’m completed diploma in Computer Scince & Engg. and Persoing B-tech in CSE.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
