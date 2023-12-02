@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vishalsingh2407
-- 👀 I’m interested in Tiktoker and can collab in  making dance reel.
+- 
 
 
 <!---
